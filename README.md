@@ -46,6 +46,8 @@ Der Düsseldorfer Hofgarten (Herzstück der Garten- und Parkanlagen in Düsseldo
 
 --> Findet Düsseldorfs ältesten *Plattenladen* in der Altstadt! Dort fragt ihr den Chef wieviel die teuerste Platte an der Wnad kostet und wie sie heißt. (Antwort notieren, sie ist der "Beweis", dass ihr da wart.)
 
+*Plattenladen*: da werden analoge Tonträger wie Schallplatten und CDs verkauft ^^
+
 
 
 4)
