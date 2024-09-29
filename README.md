@@ -4,7 +4,7 @@ Linguistik und Computerlinguistik ESAG 2024/25
 
 Mittwoch, 2.10.2024, 16:45 - 19:00 Uhr 
 
-Treffpunkt zur Gruppenbildung an der Heinrich-Heine-Statue vor der ULB.
+Treffpunkt zur Gruppenbildung 16:45 Uhr an der Heinrich-Heine-Statue vor der ULB.
 
 Von da aus geht es los, z.B. mit der U-Bahnlinie U79, in die Altstadt (Haltestelle "Heinrich-Heine-Allee").
 
