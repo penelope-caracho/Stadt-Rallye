@@ -1,9 +1,8 @@
-# stadt-rallye
-Stadt-Rallye  Linguistik und Computerlinguistik ESAG 2024/25
+# Stadt-Rallye
+Linguistik und Computerlinguistik ESAG 2024/25
 
 
 Mittwoch, 2.10.2024, 16:45 - 19:00 Uhr 
-
 
 Treffpunkt zur Gruppenbildung an der Heinrich-Heine-Statue vor der ULB.
 
