@@ -13,7 +13,7 @@ Von da aus geht es los, z.B. mit der U-Bahnlinie U79, in die Altstadt (Haltestel
 
 Bildet kleine Gruppen und versucht, so viele Punkte wie möglich (an den in den Aufgaben gesuchten Orten) zu erreichen. Es gibt 1 Punkt für jede gelöste Aufgabe. Achtet darauf welcher "Beweis" für die Absolvierung der jeweiligen Aufgabe zu erbringen ist. Die Gruppe mit den meisten Punkten gewinnt einen Preis. 
 
-Das Gebiet begrenzt sich auf die Altstadt und ihre unmittelbare Umgebung.
+! Das Gebiet begrenzt sich auf die Altstadt und ihre unmittelbare Umgebung. Es gibt auf jeden Fall genug Möglichkeiten, zwischen den Aufgaben, euch essenstechnisch zu versorgen (die Altstadt ist voll mit Fressbuden).
 
 !! Wir treffen uns spätestens um 19:00 Uhr vor der Kneipe "Schaukelstühlchen" auf der Kurze Str. 18.
 
