@@ -24,15 +24,14 @@ Bildet kleine Gruppen und versucht, so viele Punkte wie möglich (an den in den 
 Achtung! Die Reihenfolge der hier aufgelisteten "Stationen" ist nicht zwingend und ggf. auch nicht vorteilhaft (also eher random ;)
 
 
+
 1) Düsseldorfs älteste Altbier-Brauerei hat auch eine Niederlassung in der Altstadt.
 
 --> Findet Sie und besorgt einen Bierdeckel (auf Düsseldorfer Platt "Pappedeckel" :) als Beweis (ein Deckel pro Gruppe reicht)! 
 
 
 
-2)
-
-Hofgarten
+2) Hofgarten
 
 Der Düsseldorfer Hofgarten (Herzstück der Garten- und Parkanlagen in Düsseldorf), ein Ort der Erholung, aber auch der Kulturgeschichte. Der älteste Teil des öffentlichen Hofgartens wurde bereits 1769 angelegt. Damit ist der Düsseldorfer Hofgarten Deutschlands erster und ältester Volksgarten. Er birgt auch diverse Denkmäler und Kunstwerke.
 
@@ -40,7 +39,7 @@ Der Düsseldorfer Hofgarten (Herzstück der Garten- und Parkanlagen in Düsseldo
 
 
 
-3)
+3) Plattenladen
 
 --> Findet Düsseldorfs ältesten *Plattenladen* in der Altstadt! Dort fragt ihr den Chef wieviel die teuerste Platte an der Wand kostet und wie sie heißt. (Antwort notieren, sie ist der "Beweis", dass ihr da wart.)
 
@@ -48,9 +47,7 @@ Der Düsseldorfer Hofgarten (Herzstück der Garten- und Parkanlagen in Düsseldo
 
 
 
-4)
-
-Auseinandersetzung (Plastik)
+4) Auseinandersetzung (Plastik)
 
 Sie gehört zu den beliebtesten Fotomotiven in der Altstadt.
 
@@ -60,7 +57,7 @@ Den Generationenkonflikt seiner Zeit behandelt der Künstler Karl-Henning Seeman
 
 
 
-5)
+5) Carlsplatz
 
 Der Carlsplatz, ist der älteste noch betriebene Marktplatz in Düsseldorf.
 
