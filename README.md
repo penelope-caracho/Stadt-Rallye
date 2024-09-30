@@ -41,7 +41,7 @@ Der Düsseldorfer Hofgarten (Herzstück der Garten- und Parkanlagen in Düsseldo
 
 3) Plattenladen
 
---> Findet Düsseldorfs ältesten *Plattenladen* in der Altstadt! Dort fragt ihr den Chef wieviel die teuerste Platte an der Wand kostet und wie sie heißt. (Antwort notieren, sie ist der "Beweis", dass ihr da wart.)
+--> Findet Düsseldorfs ältesten *Plattenladen* in der Altstadt! Dort fragt ihr den Chef, wieviel die teuerste Platte an der Wand kostet und wie sie heißt. (Antwort notieren, sie ist der "Beweis", dass ihr da wart.)
 
 *Plattenladen*: da werden analoge Tonträger wie Schallplatten und CDs verkauft ^^
 
@@ -51,7 +51,7 @@ Der Düsseldorfer Hofgarten (Herzstück der Garten- und Parkanlagen in Düsseldo
 
 Sie gehört zu den beliebtesten Fotomotiven in der Altstadt.
 
-Den Generationenkonflikt seiner Zeit behandelt der Künstler Karl-Henning Seemann in seinem Werk „Auseinandersetzung“ aus dem Jahr 1977/78. 
+Karl-Henning Seemann behandelt den Generationenkonflikt seiner Zeit in seinem Werk „Auseinandersetzung“ aus dem Jahr 1977/78. 
 
 --> Findet die Plastik/Skulptur und macht ein lustiges Foto mit der "Auseinandersetzung".
 
@@ -59,7 +59,7 @@ Den Generationenkonflikt seiner Zeit behandelt der Künstler Karl-Henning Seeman
 
 5) Carlsplatz
 
-Der Carlsplatz, ist der älteste noch betriebene Marktplatz in Düsseldorf.
+Der Carlsplatz ist der älteste noch betriebene Marktplatz in Düsseldorf.
 
 --> Findet den Brunnen am Carlsplatz! Macht einen Fotobeweis.
 
