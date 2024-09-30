@@ -24,8 +24,7 @@ Bildet kleine Gruppen und versucht, so viele Punkte wie möglich (an den in den 
 Achtung! Die Reihenfolge der hier aufgelisteten "Stationen" ist nicht zwingend und ggf. auch nicht vorteilhaft (also eher random ;)
 
 
-1) 
-Düsseldorfs älteste Altbier-Brauerei hat auch eine Niederlassung in der Altstadt.
+1) Düsseldorfs älteste Altbier-Brauerei hat auch eine Niederlassung in der Altstadt.
 
 --> Findet Sie und besorgt einen Bierdeckel (auf Düsseldorfer Platt "Pappedeckel" :) als Beweis (ein Deckel pro Gruppe reicht)! 
 
