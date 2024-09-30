@@ -54,7 +54,7 @@ Der Düsseldorfer Hofgarten (Herzstück der Garten- und Parkanlagen in Düsseldo
 
 Auseinandersetzung (Plastik)
 
-Sie gehört zu den beliebstesten Fotomotiven in der Altstadt.
+Sie gehört zu den beliebtesten Fotomotiven in der Altstadt.
 
 Den Generationenkonflikt seiner Zeit behandelt der Künstler Karl-Henning Seemann in seinem Werk „Auseinandersetzung“ aus dem Jahr 1977/78. 
 
