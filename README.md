@@ -25,7 +25,6 @@ Achtung! Die Reihenfolge der hier aufgelisteten "Stationen" ist nicht zwingend u
 
 
 1) 
-
 Düsseldorfs älteste Altbier-Brauerei hat auch eine Niederlassung in der Altstadt.
 
 --> Findet Sie und besorgt einen Bierdeckel (auf Düsseldorfer Platt "Pappedeckel" :) als Beweis (ein Deckel pro Gruppe reicht)! 
